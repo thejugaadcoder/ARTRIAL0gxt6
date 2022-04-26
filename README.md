@@ -1,1 +1,0 @@
-# ARTRIAL0gxt6
